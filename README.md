@@ -1,4 +1,3 @@
-![tumblr_ea30e31402e73ca60f346705502136a1_946cf5dc_250](https://github.com/Albertyerg/Albertyerg/assets/145461638/f94b9fb1-cf28-407e-a205-e4ec66e7d65e)
 ![tumblr_77f33d3fd6404ad55af0f0729b642e83_03bfaeca_100 gif](https://github.com/Albertyerg/Albertyerg/assets/145461638/71f025ab-ab2f-41f9-9ea9-118a70ee196d)
 ![tumblr_9d12568a56abf507112da7641ebd9b94_fcce8cac_250 gif](https://github.com/Albertyerg/Albertyerg/assets/145461638/a7b310a8-8d4f-4c2e-a08b-de74042e5faa)
 ![tumblr_0592785adb04fd6981e3c89cfbb8ddba_93a00722_250 gif](https://github.com/Albertyerg/Albertyerg/assets/145461638/3d9bc8a0-79be-4b11-aee4-c766a26ff544)
