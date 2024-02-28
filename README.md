@@ -3,6 +3,7 @@
 ![tumblr_9d12568a56abf507112da7641ebd9b94_fcce8cac_250 gif](https://github.com/Albertyerg/Albertyerg/assets/145461638/a7b310a8-8d4f-4c2e-a08b-de74042e5faa)
 ![tumblr_0592785adb04fd6981e3c89cfbb8ddba_93a00722_250 gif](https://github.com/Albertyerg/Albertyerg/assets/145461638/3d9bc8a0-79be-4b11-aee4-c766a26ff544)
 ![tumblr_ea8b11eee55f1ae608e2dce917175eb7_abe15f83_250 gif](https://github.com/Albertyerg/Albertyerg/assets/145461638/a214304e-5bee-47f4-bf2b-12af487962a1)
+![68747470733a2f2f79326b2e6e656f6369746965732e6f72672f626c696e6b69657a2f74756d626c725f696e6c696e655f7066397069615a566a6f317672347263305f3530302e676966](https://github.com/Albertyerg/Albertyerg/assets/145461638/706f0446-5c42-4a70-9a0b-ee349dc68e70)
 ![Без названия28_20240228175238](https://github.com/Albertyerg/Albertyerg/assets/145461638/bb4c9bb6-44f1-417b-804e-0b80a8f08df5)
 ![Untitled_Project_V1 (1) (1)](https://github.com/Albertyerg/Albertyerg/assets/145461638/8b205d14-f67f-4d94-b1cf-ab40e70b36f2)
 ![Chiscara Scaramouche GIF – Chiscara Scaramouche Tartaglia – Ищите GIF-файлы и обменивайтесь ими (1)](https://github.com/Albertyerg/Albertyerg/assets/145461638/50aa548b-38a1-4a24-a39f-289c288709d4)
